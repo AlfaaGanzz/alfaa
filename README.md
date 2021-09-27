@@ -1,3 +1,3 @@
-# WA SAYA 
+# WA SAYA [https://wa.me/6285704682918]
 
-[wa.me/6285704682918] Tekan ini
+
